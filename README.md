@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sofiabiriouk
-- 👀 I’m interested in Astrophysics, and Biology.
+- 👀 I’m interested in Astrophysics.
 - 🌱 I’m currently learning At MSU.
 - 💞️ I’m looking to collaborate on any project people need help with:)
 - 📫 How to reach me biriouks@msu.edu
